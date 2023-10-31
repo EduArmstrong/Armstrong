@@ -5,7 +5,7 @@
 
 - Gosto de jogos, filmes, séries e lutas
 
-- Gosto de matemática
+- Eu uso esta conta com fins escoares, sou um estudante do Alura
 
 - Sou um pessoa sociável
 
